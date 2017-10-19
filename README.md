@@ -1,0 +1,2 @@
+# syno
+moje pliczki
